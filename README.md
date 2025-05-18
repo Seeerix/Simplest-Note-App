@@ -15,3 +15,6 @@
 2) build the APK manually, then install it on your phone
 #
 Seerix❤️
+
+![image](https://github.com/user-attachments/assets/af9f5929-a89e-4419-9035-d15f0ddfcadb) ![image](https://github.com/user-attachments/assets/f4711112-887e-490a-8329-da5f3d48de68) 
+
